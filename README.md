@@ -43,7 +43,7 @@ Formação em andamento no Curso Técnico de Nivel Medio em Informatica na modal
    Realizado no Instituto Federal do Amazonas - Campus Eirunepé.\
    Período: março de 2023.\
    Carga horária: 2 horas.\
-   [Certificado]([https://drive.google.com/file/d/1LFBRqJUuA-eOUVWZS3V3J4ywY1rFRdUQ/view?usp=drive_link])
+   [Certificado](https://drive.google.com/file/d/1LFBRqJUuA-eOUVWZS3V3J4ywY1rFRdUQ/view?usp=drive_link)
 
 5. Concluiu o curso de "A ARTE DE FALAR EM PÚBLICO", no âmbito da plataforma Aprenda Mais.\
    Período: 6 de maio de 2024 a 25 de junho de 2024.\
