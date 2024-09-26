@@ -31,24 +31,24 @@ Formação em andamento no Curso Técnico de Nivel Medio em Informatica na modal
    Realizado na V Semana de Pesquisa e Extensão do Instituto Federal do Amazonas - Campus Eirunepé.\
    Período: 18 a 21 de outubro de 2023.\
    Carga horária: 40 horas.\
-   [Certificado](https://drive.google.com/file/d/1YSEvOEGmyiZxSc1B-OJkK2fBd1000vbD/view?usp=drive_link)\
+   [Certificado](https://drive.google.com/file/d/1YSEvOEGmyiZxSc1B-OJkK2fBd1000vbD/view?usp=drive_link)
    
 3. Participou do Projeto de Ensino entitulado "CLUBE DE LIBRAS"\
    Realizado no Instituto Federal do Amazonas - Campus Eirunepé.\
    Período: junho a dezembro de 2022.\
    Carga horária: 60 horas.\
-   [Certificado](https://drive.google.com/file/d/1LFBRqJUuA-eOUVWZS3V3J4ywY1rFRdUQ/view?usp=drive_link)\
+   [Certificado](https://drive.google.com/file/d/1LFBRqJUuA-eOUVWZS3V3J4ywY1rFRdUQ/view?usp=drive_link)
   
 4. Participou da Palestra entitulada “PREVENÇÃO DA GRAVIDEZ NA ADOLESCÊNCIA”.\
    Realizado no Instituto Federal do Amazonas - Campus Eirunepé.\
    Período: março de 2023.\
    Carga horária: 2 horas.\
-   [Certificado]([https://drive.google.com/file/d/1LFBRqJUuA-eOUVWZS3V3J4ywY1rFRdUQ/view?usp=drive_link](https://drive.google.com/file/d/1XSHRfuM9zq3T3sphNKH9fS3hmeXs9gob/view?usp=drive_link))\
+   [Certificado]([https://drive.google.com/file/d/1LFBRqJUuA-eOUVWZS3V3J4ywY1rFRdUQ/view?usp=drive_link](https://drive.google.com/file/d/1XSHRfuM9zq3T3sphNKH9fS3hmeXs9gob/view?usp=drive_link))
 
 5. Concluiu o curso de "A ARTE DE FALAR EM PÚBLICO", no âmbito da plataforma Aprenda Mais.\
    Período: 6 de maio de 2024 a 25 de junho de 2024.\
    Carga horária: 20 horas.\
-   [Certificado](https://drive.google.com/file/d/1ITq_i8kvjmw9ac1eyIZsrSdIpBpaVRpI/view?usp=drive_link)\
+   [Certificado](https://drive.google.com/file/d/1ITq_i8kvjmw9ac1eyIZsrSdIpBpaVRpI/view?usp=drive_link)
    
 6. Concluiu o curso de "CÁLCULO TÉCNICO", no âmbito da plataforma Aprenda Mais.
    Período: 12 de julho de 2024 a 18 de julho de 2024.
