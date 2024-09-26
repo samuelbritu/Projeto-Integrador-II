@@ -50,7 +50,7 @@ Formação em andamento no Curso Técnico de Nivel Medio em Informatica na modal
    Carga horária: 20 horas.\
    [Certificado](https://drive.google.com/file/d/1ITq_i8kvjmw9ac1eyIZsrSdIpBpaVRpI/view?usp=drive_link)
    
-6. Concluiu o curso de "CÁLCULO TÉCNICO", no âmbito da plataforma Aprenda Mais.
-   Período: 12 de julho de 2024 a 18 de julho de 2024.
-   Carga horária: 20 horas.
+6. Concluiu o curso de "CÁLCULO TÉCNICO", no âmbito da plataforma Aprenda Mais.\
+   Período: 12 de julho de 2024 a 18 de julho de 2024.\
+   Carga horária: 20 horas.\
    [Certificado](https://drive.google.com/file/d/1Idq5_1SuO7L4VyNSQ1njTdNmPUz_vvNl/view?usp=drive_link)
